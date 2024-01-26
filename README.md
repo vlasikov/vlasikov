@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vlasikov
-- Telegram, WhatsApp:   +79004720489
+- Telegram, WhatsApp:   +79004720489 or +79961342909
 - e-mail:               vlasikov@yandex.ru
 
 
